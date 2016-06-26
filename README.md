@@ -2,6 +2,7 @@
 
 ### Loop/River North sites
 If done in the order listed, these can form a lovely walking tour
+
 1. __The Bean__
 1. __Art Institute__
 1. __Willis Tower__ (straight down Adams from the Art Institute)
