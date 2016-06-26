@@ -43,3 +43,5 @@ one of my favorite dive bars back when I spent more time in Lakeview
 a good whiskey/cocktail bar in the neighborhood I'll move back to whenever I end up back in Chicago (Andersonville)
 1. __Hopleaf__ (5148 N Clark)  
 a good beer bar in Andersonville
+1. __Kingston Mines__ (2548 N Halsted)  
+well-known Chicago blues spot
