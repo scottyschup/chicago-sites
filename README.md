@@ -8,9 +8,9 @@ If done in the order listed, these can form a lovely walking tour :)
 1. __Willis Tower__ (straight down Adams from the Art Institute)
 1. __Walk along Wacker__ from Willis Tower to Michigan Ave
     * note the iconic __"Corncob" Towers__ on the north side of the river between Dearborn and State (officially called Marina Towers)
-    * you'll pass one of my favorite buildings, the __77 Wacker__, on your right (a glass building with Greco-Roman-ish features)
+    * you'll pass one of my favorite buildings, __77 Wacker__, on your right (a glass building with Greco-Roman-ish features)
     * be sure to flip off __Trump Tower__
-1. Admire the __Wrigley Building__, often a popular spot for street performers (some of the architecture tours leave from right below the Wrigley building)
+1. Admire the __Wrigley Building__, often a popular spot for street performers in the evening (some of the architecture tours leave from right below the Wrigley building)
 1. Check out the special "bricks" in the __Tribune Tower__ (a block north of The Wrigley Building)
 1. __Navy Pier__
 1. __The Magnificent Mile__, including (but not limited to):
